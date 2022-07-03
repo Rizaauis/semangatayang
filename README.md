@@ -1,0 +1,2 @@
+# semangatayang
+semangatin ayang
